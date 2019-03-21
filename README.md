@@ -1,2 +1,2 @@
-# Destroker.github.io
+# Anzor Tamaev
 Мои домашние работы
